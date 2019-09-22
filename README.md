@@ -1,2 +1,2 @@
 # Pauliga-Retro-Video-Game
-## Descibtion
+## Desciption
